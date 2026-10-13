@@ -1,1 +1,2 @@
 # Anjali_Nair_-R25EJ008-
+I am Anjali Nair P M, a B.Tech student in Computer Science and Information Technology at Reva University. I am passionate about learning new technologies, strengthening my programming skills, and exploring innovative ideas. I enjoy learning through practical experiences and continuously improving my technical knowledge. I aspire to build a strong foundation in computer science and contribute meaningfully through my skills and dedication.
